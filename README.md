@@ -1,1 +1,1 @@
-# Accenture-virtual-internship
+# Accenture
